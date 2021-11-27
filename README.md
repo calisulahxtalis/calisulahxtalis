@@ -8,3 +8,5 @@
 calisulahxtalis/calisulahxtalis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+GOD is my sheperd I shaal not want I love you Jesus and you are strength en stronghold. Who will separate me from the love of Christ .. Its nothing at all
+And other most important issue is am in "LOVE"
